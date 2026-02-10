@@ -1,2 +1,1 @@
-# stanlee
-to bend in place
+to be in check
